@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kevinzhou03
-- 👀 I’m interested in coding,singing(especially pop music)and running
+- 👀 I’m interested in coding and music
 - 🌱 I’m currently learning C language
 - 💞️ I’m looking to collaborate on emmm Not yet. I'm a beginner:)
 - 📫 How to reach me Wechat or email.
